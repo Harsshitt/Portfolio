@@ -1,0 +1,2 @@
+# Portfolio
+A portfolio is a carefully curated collection of your work, achievements, projects, and skills that showcases your abilities, expertise, and accomplishments. It's a dynamic tool often used by professionals, creatives, and job seekers to present their capabilities to potential employers, clients, collaborators, or the broader audience. Portfolios come in various forms, including physical portfolios, digital portfolios, and online portfolios
